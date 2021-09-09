@@ -11,6 +11,6 @@ It's that easy!! 😃
 
 ---
 
-Note: The files are still being uploaded, might take a while. 😔
+Note: The files are still being uploaded, might take a while. (you can view all the current ones until then!) 😔
 
 Make sure to star this repository so more people can feel amazing, like you do! ⭐
